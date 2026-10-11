@@ -1,0 +1,1 @@
+# pandafit-excire-assets
